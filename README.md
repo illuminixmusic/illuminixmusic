@@ -1,5 +1,7 @@
-- 👋 Hi, I’m @illuminixmusic
-- 👀 I’m interested in music production, digital art and programming
+- 👋 Hi, I’m ILLUMINIX
+- 🎵 I make music
+- 👀 I’m also interested in digital art and programming
 - 🔗 linktr.ee/illuminix
 - ▶️ bit.ly/illuminix_yt
 - 🎞️ Instagram id: @illuminixofficial
+- 🎧 Spotify/Apple Music: ILLUMINIX
